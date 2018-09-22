@@ -1,2 +1,3 @@
 # kutadgu
-Merhaba Arkadaşlar ben KeyNey. Kanalıma hoşgeldiniz bugün sizlere slime yapmayı öğreteceğim.
+Merhaba Arkadaşlar ben KeyNey. Kanalıma hoşgeldiniz bugün sizlere hiçbirşey anlatmayacağım.
+Beğenmeyi ve like atmayı unutmayın. Bu tarz videoların gelmesini istiyorsanız...................
